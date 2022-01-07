@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+# Ideal is the beacon. Without ideal, there is no secure direction; without direction ,there is no life.
+　　 理想是指路明灯。没有理想，就没有坚定的方向；没有方向，就没有生活。
+　　 －Leo Tolstory（俄国作家托尔斯泰）
